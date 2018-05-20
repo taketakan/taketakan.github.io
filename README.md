@@ -1,1 +1,0 @@
-# taketakan.github.io
